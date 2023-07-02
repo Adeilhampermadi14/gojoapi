@@ -1,2 +1,2 @@
 # DAEJOBU DESO DATE KIMI API NULL O 
-![](https://tenor.com/bNzaP.gif)
+![daejobui](https://tenor.com/bNzaP.gif)
